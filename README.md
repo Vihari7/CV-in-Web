@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Vihari
 - 👀 I’m interested in ICT world
-- 🌱 I’m currently learning open university Sri Lanka.
+- 🌱 I’m currently learning at open university Sri Lanka.
 - 💞️ I’m looking to collaborate on IT Field
 - 📫 dviha7@gmail.com
 - 
